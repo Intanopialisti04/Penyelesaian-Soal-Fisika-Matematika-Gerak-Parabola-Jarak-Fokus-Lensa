@@ -1,0 +1,1 @@
+# Penyelesaian-Soal-Fisika-Matematika-Gerak-Parabola-Jarak-Fokus-Lensa
